@@ -1,4 +1,4 @@
-### Hi there 👋
+### Mikołaj16786 C3
 
 <!--
 **Mikolaj16786/Mikolaj16786** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
